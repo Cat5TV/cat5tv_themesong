@@ -5,3 +5,9 @@ Remix for Category5 Technology TV Season 13 (2019-2020) provided by:
 **MickRip**\
 Mick Rippon\
 https://mickrippon.com
+
+Mastered by:
+
+**Baldnerd**\
+Robbie Ferguson\
+https://category5.tv
